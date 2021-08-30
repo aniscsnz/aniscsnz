@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Aniscsnz    
+- 👀 I’m interested in Devlop apps games software generally
+- 🌱 I’m currently learning JAVA C++ KOTLIN
+- I want to be softare and games developer because i want to make money from it
